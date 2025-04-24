@@ -1,1 +1,0 @@
-      Bᴜᴍʙʟᴇʙᴇᴇ-XᴍD session id 
